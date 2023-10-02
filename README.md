@@ -1,1 +1,1 @@
-# TechnoEdge_salses
+# TechnoEdge_sales
